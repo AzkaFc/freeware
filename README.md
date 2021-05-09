@@ -1,0 +1,2 @@
+# freeware
+Non deskriosi
